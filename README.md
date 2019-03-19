@@ -1,0 +1,15 @@
+##就是随便交流一下相关的技术
+##也可以分享一些你们的技术网站
+国内技术网站：
+http://www.gn03.xyz
+http://nmyy.me
+http://www.kj006.xyz/?blue
+http://www.hhlou.com.cn/index.php?m=vod-detail-id-11241.html
+http://3838bbb.com/?lanse
+https://vthyup.cn/?utm_source=dh&utm_campaign=AD&utm_medium=fond
+pronhub.com
+dafjdh.life
+http://dafjdh.life
+随时更新，有新技术网站就会更新
+莫要举报老子！！！
+图片想起来就更新一下，仅限技术交流，请勿传播
